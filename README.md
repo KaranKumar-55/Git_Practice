@@ -2,4 +2,4 @@
 
 Daily Learning  
 <br>
-Author -  Karan Kumar
+Author -  Karan Ladkani
